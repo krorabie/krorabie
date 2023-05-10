@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @krorabie
+- 👀 I’m interested in real estate investment
+- 🌱 I’m currently learning about blockchains and smart contracts
+- 💞️ I’m looking to collaborate on... nothing, not currently looking at it
+- 📫 How to reach me: via twitter @carolina_rabie
